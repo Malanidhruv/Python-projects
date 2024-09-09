@@ -1,1 +1,1 @@
-
+From Auto Sector We can conclude that Auto Sales rise up when its time for filing tax returns ie in the month of April and before Diwali due to pre booking of vehicles so accordingly people can invest.
